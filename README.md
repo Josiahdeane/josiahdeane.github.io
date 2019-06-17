@@ -1,2 +1,2 @@
-#josiahdeane.github.io
+#josiahdeane.com
 
